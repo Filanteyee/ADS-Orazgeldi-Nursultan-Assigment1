@@ -1,0 +1,1 @@
+# ADS-Orazgeldi-Nursultan-Assigment1
